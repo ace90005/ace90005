@@ -1,2 +1,0 @@
-- 👋 Hi, I’m @ace90005
-- 👀 I’m interested in school
